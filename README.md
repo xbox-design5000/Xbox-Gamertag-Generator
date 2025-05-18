@@ -54,6 +54,6 @@ You shouldn’t have to spend two hours brainstorming just to end up with “Sha
 
 You want something cool. Memorable. You.
 
-Click here and grab your new gamertag now (https://xboxgamertaggenerator.com/)
+[Click here and grab your new gamertag now](https://xboxgamertaggenerator.com/)
 
 It’s free—and honestly, kind of addictive
